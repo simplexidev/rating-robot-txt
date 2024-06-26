@@ -1,0 +1,1 @@
+# rating-robot-txt
